@@ -6,7 +6,8 @@ i luv fish !!!
 cats are also cool.
 - check links above!!
 
-sys.
+system. (rlly dont wanna talk abt it.)
+
 
 🫧
 <!--
