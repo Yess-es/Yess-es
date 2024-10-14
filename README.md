@@ -1,4 +1,8 @@
-## Hi there 👋
+![IMG_1356](https://github.com/user-attachments/assets/d6ba38e7-6e1f-495f-9e2e-b99775fbc388)
+
+call me book, yess, K or jicky.
+
+i luv fish !!!
 
 <!--
 **Yess-es/Yess-es** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
