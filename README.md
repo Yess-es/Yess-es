@@ -3,7 +3,12 @@
 call me book, yess, K or jicky.
 
 i luv fish !!!
+cats are also cool.
+- check links above!!
 
+sys.
+
+🫧
 <!--
 **Yess-es/Yess-es** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
