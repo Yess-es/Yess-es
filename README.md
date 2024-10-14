@@ -6,7 +6,7 @@ i luv fish !!!
 cats are also cool.
 - check links above!!
 
-system. (rlly dont wanna talk abt it.)
+system host. (rlly dont wanna talk abt it.)
 
 
 🫧
