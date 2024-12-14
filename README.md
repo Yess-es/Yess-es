@@ -1,13 +1,11 @@
-![IMG_1356](https://github.com/user-attachments/assets/d6ba38e7-6e1f-495f-9e2e-b99775fbc388)
+![image](https://github.com/user-attachments/assets/af68f66d-368b-4b3e-af5f-ffee0a181646)
 
 call me book, yess, K or jicky.
 
-i luv fish !!!
-cats are also cool.
 - check links above!!
 
-guh silli fish 🐠🐠🐠🐠🐠🐠🐠🐠🐠
-
+if im sleeping im prolly afk
+- .yesses. on discord if u need smth from me lol
 
 🫧
 
