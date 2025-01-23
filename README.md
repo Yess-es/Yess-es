@@ -7,6 +7,8 @@ call me book, yess, K , ming or jicky
 if im sleeping or have 💤 in my name
 im prolly afk
 
+if u find me alone, dont be shy to int or scoot up next to me!! i love compagny! ^^
+
 - .yesses. on discord if u need smth from me lol
   
 
