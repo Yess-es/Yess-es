@@ -4,6 +4,8 @@ call me book, yess, K  or whatver u know me by
 if im sleeping or have 💤 in my name
 im prolly afk
 ´
+
+
 art comms open soon ^^ @.yesses.
 
 🫧
