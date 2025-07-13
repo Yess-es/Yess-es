@@ -5,9 +5,6 @@ if im sleeping or have 💤 in my name
 im prolly afk
 ´
 
-
-art comms open soon ^^ @.yesses.
-
 🫧
 
 
